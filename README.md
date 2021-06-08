@@ -1,1 +1,1 @@
-**Eyosi** _Strong_
+**Eyosi** 
